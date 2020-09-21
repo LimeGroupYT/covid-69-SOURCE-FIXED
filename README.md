@@ -16,3 +16,7 @@ enjoy the source.
 the new :kek: emoji https://cdn.discordapp.com/emojis/756516650148167820.png?v=1
 
 tip little kenny: never leak ur face. 
+
+
+
+other acc from kenny: https://cdn.discordapp.com/attachments/754253117226352702/757681723525038232/Screenshot_1.png
