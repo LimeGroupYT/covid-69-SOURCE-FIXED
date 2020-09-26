@@ -20,3 +20,11 @@ tip little kenny: never leak ur face.
 
 
 other acc from kenny: https://cdn.discordapp.com/attachments/754253117226352702/757681723525038232/Screenshot_1.png
+
+
+
+ATTENTION:
+
+Silent worked for 14.10
+
+u need to update for 14.20
